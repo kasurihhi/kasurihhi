@@ -1,6 +1,6 @@
 [rentry](https://rentry.co/noizaoba)
 
-github in wip . .
+github STILL in wip . SIGN MY ATA !!!
 
 ![](https://komarev.com/ghpvc/?username=kia-mei&color=d0b2db&style=plastic&label=⠀⠀⠀☆⠀⠀⠀)
 
